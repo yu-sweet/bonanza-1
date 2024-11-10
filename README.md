@@ -1,3 +1,8 @@
+## [Apasă aici pentru a juca Sweet Bonanza pe cel mai bun site de sloturi](https://cutt.ly/SeHYCYw0)
+<br>
+<br>
+<br>
+
 # Sweet Bonanza Jucați Adevăratul Bonanza
 
 
